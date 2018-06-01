@@ -1,4 +1,4 @@
-# SEGUROS HOGAR BAMCOMER
+# SEGUROS DE HOGAR BANCOMER
 
 ![imagen](https://image.ibb.co/jd0hXd/1.png)
 
